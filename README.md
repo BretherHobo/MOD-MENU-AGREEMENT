@@ -22,3 +22,5 @@ The thing you must agree to, to make a mod/cheat menu
 19. Cheat menus are not allowed to be $30 through $100.
 20. Mod Menus and cheat menus have to be nice and not a big long plank of mods.
 21. If everything is agreed upon the leaks will be taken down.
+
+Signed by: BretherHobo, Mango_, PhoenixSS, dec_z, and shibby
